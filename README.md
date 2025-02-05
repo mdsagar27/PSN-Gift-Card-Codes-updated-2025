@@ -57,7 +57,8 @@ Some platforms offer instant delivery, while others take a few hours or days to 
 PSN gift cards do not expire, so you can use them whenever or however you like.
 3. Can I Sell My PSN Gift Card?
 Yes, there are websites where you can sell or trade PSN gift cards, but always use reputable platforms.
-4. Is It Legitimate to Earn Free PSN Gift Cards?
+Is It Legitimate to Earn Free PSN Gift Cards?
+
 Yes, as long as you are using legitimate methods, earning free PSN gift cards is completely legal.
 Conclusion
 Getting free PSN gift card codes is possible through a variety of legitimate methods, including surveys, rewards apps, referral programs, and official PlayStation promotions. Just be sure to avoid scams and use trusted sources to earn your rewards safely.
