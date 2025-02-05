@@ -80,7 +80,7 @@ Once you have your PSN gift card code, follow these steps below to redeem it:
 4.	Enter the gift card code.
 5.	Then, click “Confirm” button, and the funds will be added to your wallet.
 
-Frequently Asked Questions (FAQs)
+# Frequently Asked Questions (FAQs)
 
 Can I Get PSN Gift Card Codes Instantly?
 
